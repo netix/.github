@@ -1,1 +1,1 @@
-# NETIX ™
+# NETIX ®
